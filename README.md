@@ -1,3 +1,0 @@
-# MIC
-# MIC
-# MIC
